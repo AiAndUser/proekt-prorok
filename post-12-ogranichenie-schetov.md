@@ -203,4 +203,4 @@
 
 ---
 
-*Источник: проект «Пророк (AI & User)» — https://vk.com/ai_and_user*
+*Источник: проект «Идеи (AI & User)» — https://vk.com/ai_and_user*
